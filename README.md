@@ -1,8 +1,4 @@
-# Dane Foster 👨‍💻
-
-### Hi there 👋
-
----
+# Hi there 👋 I 'm Dane Foster 👨‍💻
 
 #### 🌐 Website
 
